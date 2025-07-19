@@ -44,11 +44,11 @@
 
    ▸ artist turned tech person (coz life sucks)
 
-   ▸ on a journey to improve 🌱
+   ▸ on a journey to improve 𖹭.ᐟ
 ```
 <div>
 
-##### [_portfolio, (work in progress)_](https://auclinn.github.io/portfolio/)
+##### btw i love cats ₍^. .^₎⟆
 
 </div>
 
