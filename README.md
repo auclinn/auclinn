@@ -44,6 +44,8 @@
 
    ▸ artist turned tech person (coz life sucks)
 
+   ▸ aside from programming languages, i'm also learning 日本語
+
    ▸ on a journey to improve 𖹭.ᐟ
 ```
 <div>
