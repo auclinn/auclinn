@@ -51,6 +51,8 @@
 <div>
 
 ##### btw i love cats ₍^. .^₎⟆
+[〔˖⌕ ۫🗁〕▸ 🖳 ⸝⸝](https://brndtt.vercel.app/)
+
 
 </div>
 
